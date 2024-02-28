@@ -1,1 +1,1 @@
-# aestatis.github.io
+禁止窥视他人的赛博坟墓
